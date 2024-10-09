@@ -8,7 +8,7 @@
 Traditionally the sauce just had garlic, tomatoes, and dried red chili peppers cooked in olive oil. The recipe below, however, has been modified to include basil, butter, and optionally dairy poducts.
 
 ## Ingredients
-This is great for serving 2 people for 1 meal. Modify the quantity as needed
+Serves 2
 
 Produce:
 * 4 tomatoes
